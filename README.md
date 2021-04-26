@@ -8,7 +8,7 @@ First of all apologies that I had to bring you here. I wanted to connect with yo
 
 ## Skype
 
-**Username**: ```talhasaleem09```
+**Username**: ```teeelllsss```
 **Link**: ```https://join.skype.com/invite/XlBGmYFFZ4bn```
 
 (If you want to connect on Skype, please type "**Yes Ready**" on Fiverr Message)
