@@ -15,7 +15,7 @@ First of all apologies that I had to bring you here. I wanted to connect with yo
 
 ## Zoom
 
-**Meeting Url**: ```344 263 3071```
+**Meeting Url**: ```237 670 2501```
 **Password**: ```letmein```
 
 (If you want to connect on Zoom, please type "**Yes Indeed**" on Fiverr Message)
