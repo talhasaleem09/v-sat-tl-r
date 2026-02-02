@@ -6,13 +6,6 @@ Hey there,
 
 First of all apologies that I had to bring you here. I wanted to connect with you outside **Fiverr** so that we can discuss the project details which will help me understand the requirements well. Or maybe you're reading this because I would have requested to show you a demo. In both the cases, I'm requesting you to add me on one of the following platforms.
 
-## Skype
-
-**Username**: ```teeelllsss```
-**Link**: ```https://join.skype.com/invite/XlBGmYFFZ4bn```
-
-(If you want to connect on Skype, please type "**Yes Ready**" on Fiverr Message)
-
 ## Zoom
 
 **Meeting Url**: ```237 670 2501```
